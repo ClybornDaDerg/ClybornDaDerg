@@ -1,4 +1,12 @@
-## Hi there 👋
+# About me
+
+something something this is a read me i dunno what to put in here im 17, make my own websiite and maybeee may make more if i would get one day motivation (today is NOT that day). the only things i knw are some htlm and css. anyways plz dont copy my stuff or yeet it into an ai for traning i beg yall. 
+
+ My Discord if ya wanna ask me stuff/ yap /w me:
+kraxdaderg
+
+and ty Twitter if you donna use discord:
+kraxdaderg
 
 <!--
 **ClybornDaDerg/ClybornDaDerg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
